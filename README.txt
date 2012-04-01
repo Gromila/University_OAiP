@@ -1,0 +1,1 @@
+Here are all OAiP labs for the first semestr. 12 variant.
